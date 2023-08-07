@@ -60,3 +60,5 @@ However, it is important to note that anyone willing to put in the effort can be
 This path is difficult but it is designed to be as fair as possible.
 
 Read more about the Core Member Track here.
+
+For more information stop by our webpage [www.daomasons.com](https://www.daomasons.com/) or come into our [Discord](https://discord.gg/9mHjZGaSj7) to say hi.
